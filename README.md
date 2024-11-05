@@ -9,7 +9,7 @@ A highly skilled and experienced Fullstack Developing expert with deep knowledge
 * 🌍  I'm based in Jakarta
 * ✉️  You can contact me at [pamungkasdimas122@gmail.com](mailto:pamungkasdimas122@gmail.com)
 * 🚀  I'm currently working on [PT Bussan Auto Finance](http://https://www.baf.id/en)
-* ⚡  If you are looking for
+* ⚡  Call me if you looking for UI expert and Detail oriented Frontend Developer
 
 ### Skills
 
